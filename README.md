@@ -1,2 +1,2 @@
-hahaha kocak lu
+jokowi presiden indonesia ke 7
 saya suka makan manis
