@@ -1,1 +1,3 @@
-Ini file pertama 
+lucunyyaaa
+amboyyyy
+hahahha
