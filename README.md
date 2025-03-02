@@ -1,1 +1,3 @@
-Ini file pertama 
+haha lucunya
+cihuyyy
+awokawok
