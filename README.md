@@ -1,1 +1,2 @@
-Ini file pertama 
+hahaha kocak lu
+saya suka makan manis
